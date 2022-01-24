@@ -1,4 +1,4 @@
-### Olá! osu Leandro Carvalho 👋
+### Olá! sou Leandro Carvalho 👋
 
 
 🔭 Atualmente estudando Análise e Desenvolvimento de Sistemas 👯⚡⚡
